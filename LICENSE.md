@@ -1,4 +1,4 @@
-
+Get the ultimate Affinity Photo for macOS automation with Affinity Photo for macOS instant Automation: cloud sync & export to SVG. Featuring cloud sync and export to SVG, it's the
 
 
 
